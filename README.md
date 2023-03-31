@@ -1,5 +1,7 @@
-got it
+i understand
 
-i have no time tomorrow morning
+but please don't kick my client off
 
-please phone tomorrow evening
+anyway, i will wait for your phone
+
+see you again
