@@ -1,11 +1,13 @@
-it's difficult for me to connect with client instead of you
+for me, in a month, i had several job opportunities about 3 long term
 
-that's why i want to send my client to you
+did 4 video calls
 
-of course, let him chat with you via slack
+but it's really difficult to get job without grown ln.
 
-my boss sat near me, okay?
+i'm seeking ways to get job before my link account grows,
 
-atm, i can use link, growing now
+to get job, we must have calls, but i can't without nobody knows
 
-can we talk tomorrow morning via ph?
+ofc, i'll try for you, i have friends and tell them to help me have call with him
+
+anyway see you tomorrow evening i have alot of things to do
