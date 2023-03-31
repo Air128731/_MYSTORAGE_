@@ -10,4 +10,4 @@ to get job, we must have calls, but i can't without nobody knows
 
 ofc, i'll try for you, i have friends and tell them to help me have call with him
 
-anyway see you tomorrow evening i have alot of things to do
+anyway see you tomorrow evening i have alot of things to tell you
